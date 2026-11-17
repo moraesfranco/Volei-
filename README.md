@@ -1,1 +1,1 @@
-# Volei-
+# Volei-O vôlei é um esporte coletivo praticado por duas equipes, com seis jogadores de cada lado, separadas por uma rede. O objetivo do jogo é fazer a bola tocar no chão da quadra adversária, utilizando as mãos e os braços, sem deixar que ela caia no próprio campo. Cada equipe pode dar até três toques na bola antes de enviá-la para o outro lado. O vôlei desenvolve habilidades como agilidade, força, coordenação motora, concentração e trabalho em equipe, além de promover a saúde e a diversão. 🏐
